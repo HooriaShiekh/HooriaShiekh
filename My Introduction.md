@@ -10,7 +10,7 @@ From clean code to pixel-perfect designs, I love bringing ideas to life.
 
 🎯 Goal: Not just writing code, but creating experiences.
 
-📫 Let's talk! [hooriyaqueen2007@gmail.com]
+📫 Let's talk! [hooriyaqueen2007@gmail.com  / www.linkedin.com/in/hooria-zahoor-046560354]
 
 ⚡ Fun fact: If coding was a sport, I'd be chasing world records (while probably drinking my 3rd coffee).
 
